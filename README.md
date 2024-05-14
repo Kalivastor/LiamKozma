@@ -2,7 +2,7 @@
 
 ## Biochemical Engineering Graduate
 
-📧 **Email:** [liamkozmabiz@gmail.com](mailto:liamkozmabiz@gmail.com)  
+📧 **Email:** [liam@liamkozma.com](mailto:liam@liamkozma.com)  
 📞 **Phone:** (770)-688-6995  
 🔗 **LinkedIn:** [www.linkedin.com/in/liamkozma/](https://www.linkedin.com/in/liamkozma/)  
 🌐 **Portfolio:** [liamkozma.com](https://liamkozma.com)  
